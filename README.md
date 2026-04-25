@@ -1,7 +1,6 @@
 # 👩‍💻 Hoor-ul-Ain  
 
 📍 Chakwal, Punjab, Pakistan  
-📞 03700147271  
 📧 hoorjanjua05@gmail.com  
 🔗 https://linkedin.com/in/hoor-ul-ain-a9a6023b4  
 
